@@ -1,1 +1,1 @@
-### Hi, I'm Bekhruzbek Nuriddinov <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExbXczeDFtbnNiZDRxMzJhczJsaHh1OG40bHQ3M3h0b2EyMzFza3lxYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/w1OBpBd7kJqHrJnJ13/giphy.gif" width="30px">
+### Hi, I'm Bekhruzbek Nuriddinov <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMzd0cHlmM2gwaThhNGZmN3duanBra204eTBtcGRsenNscm50bHh6bCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/dZCGUOirHnh49N03TF/giphy.gif" width="30px">
